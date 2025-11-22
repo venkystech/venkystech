@@ -20,7 +20,7 @@
 
 ### 📫 Connect With Me
 - Email: **venkateshavuluri3@gmail.com**  
-- LinkedIn: [linkedin.com/in/venkystech](https://linkedin.com/in/venkystech)  
+- LinkedIn: [linkedin.com/in/venkystech](www.linkedin.com/in/venkatesh-avuluri-2898ad)  
 
 ### ⚡ Fun Fact
 I believe every project is a step toward building a **legacy‑grade portfolio**.

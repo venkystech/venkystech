@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Avuluri Venkatesh (@venkystech)
+# Hi there 👋 I'm  Venkatesh Avuluri
 
 🚀 **Aspiring Data Scientist | MCA Student | Builder of Practical Projects**
 
